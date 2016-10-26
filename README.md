@@ -1,2 +1,2 @@
 # belajarprogram
-buat belajar aja
+Cuma buat belajar aja, masih pemula butuh banyak bimbingan
